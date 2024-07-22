@@ -19,6 +19,6 @@
 
 #### Submission
   - Dealine for submission is Friday, 26th July, 2024.
-  - Send the figma link to contact@abiodunsamuel.com along with your a portfolio showcasing their best UI/UX and graphic design work.
-  - Also, if you have any question you can forward them to contact@abiodunsamuel.com.
+  - Send the figma link to intelregion.com@gmail.com along with your a portfolio showcasing their best UI/UX and graphic design work.
+  - Also, if you have any question you can forward them to intelregion.com@gmail.com
 Goodluck.
